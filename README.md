@@ -8,7 +8,8 @@
 
 ## 🌐 Conecte-se comigo
 
-[LinkedIn](https://linkedin.com/in/seuusuario)
+[LinkedIn](https://linkedin.com/in/estephany
+)
 
 [Portfólio](https://seusite.com)
 
